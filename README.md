@@ -1,1 +1,1 @@
-# Nova-Hub-Free
+Nova Hub Free Version!
